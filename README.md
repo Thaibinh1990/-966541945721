@@ -1,0 +1,2 @@
+# -966541945721
+I cater to the most professional gentleman who wishes to spend time with a lively, intelligent, passionate woman. I can assure you, our time together will be unforgettable. If you're the kind of gentleman that deserves nothing but the best. *Enjoy a pleasurable sensual massage by a professional. *I have expertise on Nuru Massage,it’s my signature. *Steamy sex with your freaky courtesan and other sweet extras. *Anal is available on request at extra cost ,you must ask in advance. I am available along kiambu rd area for incall and outcalls within Nairobi. 
